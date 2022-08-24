@@ -8,3 +8,6 @@
 ![img6](./77708162_p.jpg)
 ![img7](./belmondo_jeune.jpg)
 ![img8](./Bertrand-Blier.jpg)
+![img8](./Capture-d’écran-2020-11-04-à-21.57.50.jpg)
+![img8](./emi_86273.jpg)
+![img8](./image-w856.jpg)
